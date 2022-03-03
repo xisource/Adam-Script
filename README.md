@@ -1,0 +1,2 @@
+# Adam-Script
+Hi
